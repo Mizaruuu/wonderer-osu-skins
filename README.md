@@ -9,3 +9,6 @@ my skins that I use in replays
 
 # [whitecat](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
 ![](https://i.imgur.com/IxyB255.png)
+
+#[rafis edit](https://wonderer.s-ul.eu/8uo46N6b)
+![](https://i.imgur.com/BOAKb3m.png)
