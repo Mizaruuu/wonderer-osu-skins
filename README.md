@@ -26,16 +26,16 @@ my skins that I use in replays
 ![](https://i.imgur.com/2s4jNcj.png)
 
 # [smh](https://wonderer.s-ul.eu/71FRFXm7)
-![]()
+![](https://i.imgur.com/m7bmzN2.png)
 
 # [doomsday green](https://wonderer.s-ul.eu/9gulIpKs)
-![]()
+![](https://i.imgur.com/tGuhZrT.png)
 
 # [kune259](https://wonderer.s-ul.eu/B963GB8O)
-![]()
+![](https://i.imgur.com/lGu6n8B.png)
 
 # [seysant but my edit](https://wonderer.s-ul.eu/2sRfcVUu)
-![]()
+![](https://i.imgur.com/5L7yb7R.png)
 
 # [varvalian](https://wonderer.s-ul.eu/cSXq5lGS)
 ![](https://i.imgur.com/iIRs8Gi.png)
