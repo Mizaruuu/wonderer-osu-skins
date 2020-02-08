@@ -13,8 +13,37 @@ my skins that I use in replays
 # [rafis edit](https://wonderer.s-ul.eu/8uo46N6b)
 ![](https://i.imgur.com/BOAKb3m.png)
 
-#[tko?](https://wonderer.s-ul.eu/CItfrmpg)
+# [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
+
+# [ameliorate yaong](https://wonderer.s-ul.eu/YVpgFkEM)
+![](https://i.imgur.com/u2EnxK3.png)
+
+# [rustbell](https://circle-people.com/wp-content/Skins/Rustbell%20(Totori)/Totori-2018-04-01.osk)
+![](https://i.imgur.com/xfWZKzx.png)
+
+# [aesthetic red cursor ](https://wonderer.s-ul.eu/NBGwfNs3)
+![](https://i.imgur.com/2s4jNcj.png)
+
+# [smh](https://wonderer.s-ul.eu/71FRFXm7)
+![]()
+
+# [doomsday green](https://wonderer.s-ul.eu/9gulIpKs)
+![]()
+
+# [kune259](https://wonderer.s-ul.eu/B963GB8O)
+![]()
+
+# [seysant but my edit](https://wonderer.s-ul.eu/2sRfcVUu)
+![]()
+
+# [varvalian](https://wonderer.s-ul.eu/cSXq5lGS)
+![](https://i.imgur.com/iIRs8Gi.png)
+
+# [rafis](https://wonderer.s-ul.eu/tAXiDQ9a)
+![](https://i.imgur.com/uAbOkbE.png)
+
+
 
 
 
