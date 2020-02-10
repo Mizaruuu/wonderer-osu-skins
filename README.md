@@ -29,6 +29,9 @@ my osu skins that i use
 # [morgna cinnaroll](https://wonderer.s-ul.eu/H3t2u0uf)
 ![]()
 
+# [morgan varvalian](https://wonderer.s-ul.eu/plTTBH7J)
+![]()
+
 # [whitecat seoul](http://puu.sh/wbUqh/f06e03e683.osk)
 ![]()
 
