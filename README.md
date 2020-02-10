@@ -47,6 +47,9 @@ my osu skins that i use
 # [tko? 2](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
 ![]()
 
+# [boom 0524 edit](https://osuskins.net/download/QCPBA9y)
+![]()
+
 # [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
 ![]()
 
@@ -55,14 +58,6 @@ my osu skins that i use
 
 # [ameliorate yaong](https://wonderer.s-ul.eu/YVpgFkEM)
 ![](https://i.imgur.com/u2EnxK3.png)
-
-
-
-
-
-
-
-
 
 # [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
 ![](https://i.imgur.com/IxyB255.png)
