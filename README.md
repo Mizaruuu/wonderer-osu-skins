@@ -13,26 +13,41 @@ my osu skins that i use
 # ^ main dt skins
 
 
+
+
+
+
 # [cuon and azure](https://wonderer.s-ul.eu/JVpbLPC0)
 ![]()
 
 # [jace](https://wonderer.s-ul.eu/Mqduh1TL)
 ![]()
 
+# [monkoyaong](https://wonderer.s-ul.eu/lQuZqc3F)
+![]()
 
-# [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
-![](https://i.imgur.com/IxyB255.png)
+# [morgna cinnaroll](https://wonderer.s-ul.eu/H3t2u0uf)
+![]()
 
 # [whitecat seoul](http://puu.sh/wbUqh/f06e03e683.osk)
 ![]()
 
-# [azer8dawn](https://www.dropbox.com/s/ydin4ern2eb4ev2/%23azer8dawn.osk?dl=0)
+# [azer8dawn](https://www.dropbox.com/s/ydin4ern2eb4ev2/%23azer8dawn.osk?dl=1)
+![]()
+
+# [bowdown](https://www.dropbox.com/s/0f0filgw5bj4eoo/talala%20-%20bowdown.osk?dl=1)
 ![]()
 
 # [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
 
 # [tko? 2](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
+![]()
+
+# [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
+![]()
+
+# [aesthetic](https://www.dropbox.com/s/x61c9ditrcsqxsv/Aesthetic%201.3%20%28Ring%29.osk?dl=1)
 ![]()
 
 # [ameliorate yaong](https://wonderer.s-ul.eu/YVpgFkEM)
@@ -46,3 +61,5 @@ my osu skins that i use
 
 
 
+# [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
+![](https://i.imgur.com/IxyB255.png)
