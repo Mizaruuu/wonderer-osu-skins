@@ -37,9 +37,6 @@ my skins that I use in replays
 # [seysant but my edit](https://wonderer.s-ul.eu/2sRfcVUu)
 ![](https://i.imgur.com/5L7yb7R.png)
 
-# [varvalian](https://wonderer.s-ul.eu/cSXq5lGS)
-![](https://i.imgur.com/iIRs8Gi.png)
-
 # [rafis](https://wonderer.s-ul.eu/tAXiDQ9a)
 ![](https://i.imgur.com/uAbOkbE.png)
 
