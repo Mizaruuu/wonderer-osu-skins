@@ -58,7 +58,7 @@ wonderer#8685
 ![]()
 
 # [aesthetic](https://www.dropbox.com/s/x61c9ditrcsqxsv/Aesthetic%201.3%20%28Ring%29.osk?dl=1)
-![]()
+![](https://i.imgur.com/ulQdY9O.png)
 
 # [ameliorate yaong](https://wonderer.s-ul.eu/YVpgFkEM)
 ![](https://i.imgur.com/u2EnxK3.png)
