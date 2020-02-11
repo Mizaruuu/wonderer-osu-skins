@@ -43,7 +43,7 @@ wonderer#8685
 ![]()
 
 # [bowdown](https://www.dropbox.com/s/0f0filgw5bj4eoo/talala%20-%20bowdown.osk?dl=1)
-![]()
+![](https://i.imgur.com/5jo6jSM.png)
 
 # [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
