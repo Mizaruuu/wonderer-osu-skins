@@ -17,6 +17,13 @@ wonderer#8685
 # ^ main dt skins
 
 
+
+# [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
+![](https://osu.ppy.sh/ss/14517335/72b8)
+
+# [inferno](https://wonderer.s-ul.eu/RX027G0n)
+![](https://osu.ppy.sh/ss/14517334/4020)
+
 # [luca](https://wonderer.s-ul.eu/ZEHFoqYm)
 ![](https://i.imgur.com/z3A5H8N.png)
 
