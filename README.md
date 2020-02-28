@@ -24,7 +24,7 @@ wonderer#8685
 # [gothic lolita fever](https://wonderer.s-ul.eu/RX027G0n)
 ![](https://osu.ppy.sh/ss/14517334/4020)
 
-# [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or # [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
+# [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
 ![](https://i.imgur.com/z3A5H8N.png)
 
 # [skill](https://wonderer.s-ul.eu/WLJUlR1f)
