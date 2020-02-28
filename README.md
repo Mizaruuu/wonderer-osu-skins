@@ -41,7 +41,7 @@ wonderer#8685
 # [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
 ![](https://i.imgur.com/z3A5H8N.png)
 
-# [skill](https://wonderer.s-ul.eu/WLJUlR1f)
+# [skill](https://www.dropbox.com/s/qzgxvp8lb9lsr5g/Skill%20Re.osk?dl=1)
 ![](https://i.imgur.com/6eCLh8h.png)
 
 # [cuon and azure](https://wonderer.s-ul.eu/JVpbLPC0)
