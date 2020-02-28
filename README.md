@@ -17,6 +17,20 @@ wonderer#8685
 # ^ main dt skins
 
 
+# [boom 0524 but](https://wonderer.s-ul.eu/Z9IZzcoT)
+
+
+# [aesthetic but](https://wonderer.s-ul.eu/MJTTmyPG)
+![]()
+
+# [red pixel](https://wonderer.s-ul.eu/LTt3ZzTD)
+![]()
+
+# [xilver](https://wonderer.s-ul.eu/G5tjseSl)
+![]()
+
+# [ameliorate gfmrt](https://www.dropbox.com/s/9wer8giax7jtaja/Ameliorate%28GfMRT%29.osk?dl=1)
+![]()
 
 # [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
 ![](https://osu.ppy.sh/ss/14517335/72b8)
