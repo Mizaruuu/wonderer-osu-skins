@@ -12,7 +12,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14548095/decd)
 
 # [aireu dt](https://www.dropbox.com/s/edgjos6v00bhmq2/aireu%20dt.osk?dl=1)
-![]()
+![](https://osu.ppy.sh/ss/14718918/6273)
 
 # [ameliorate yaong](https://wonderer.s-ul.eu/YVpgFkEM)
 ![](https://i.imgur.com/u2EnxK3.png)
@@ -27,13 +27,13 @@ wonderer#8685
 ![](https://i.imgur.com/Yqaz5nv.png)
 
 # [flor](https://wonderer.s-ul.eu/yX4VrCV5)
-![]()
+![](https://osu.ppy.sh/ss/14718920/1403)
 
 # [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
 ![](https://i.imgur.com/wsUuZa7.png)
 
 # [jace](https://wonderer.s-ul.eu/wJ7LWU9r)
-![]()
+![](https://osu.ppy.sh/ss/14718925/7190)
 
 # [lua(toke hamster) dt edit](https://wonderer.s-ul.eu/9PndWNLO)
 ![](https://osu.ppy.sh/ss/14460595/a25d)
@@ -57,10 +57,10 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
 # [rustbell cent](https://wonderer.s-ul.eu/MXZqwGxJ)
-![]()
+![](https://i.imgur.com/xWkMvPx.png)
 
 # [semaphore](https://wonderer.s-ul.eu/E2EHkG3x)
-![]()
+![](https://osu.ppy.sh/ss/14718937/f8f6)
 
 # [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
@@ -69,7 +69,7 @@ wonderer#8685
 ![](https://i.imgur.com/ZtCjkft.png)
 
 # [varvalian](https://www.dropbox.com/s/pazl3bgbie26dbe/Aristia%28Edit%29.osk?dl=1)
-![]()
+![](https://osu.ppy.sh/ss/14718931/858b)
 
 # [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
 ![](https://i.imgur.com/IxyB255.png)
