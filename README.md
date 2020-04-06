@@ -42,7 +42,7 @@ wonderer#8685
 ![](https://i.imgur.com/VPYEigc.png)
 
 # [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
-![](https://osu.ppy.sh/ss/14517335/72b8
+![](https://osu.ppy.sh/ss/14517335/72b8)
 
 # [rafis](https://wonderer.s-ul.eu/tAXiDQ9a)
 ![](https://i.imgur.com/uAbOkbE.png)
