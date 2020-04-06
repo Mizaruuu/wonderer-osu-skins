@@ -51,7 +51,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
 # [owotuna selyu](https://www.dropbox.com/s/w04lczbctfb0rn9/-%20%20%20%20%20%20%23%20owoTuna%20%7B1.41%7D%20%E3%80%8ESelyu%2BShige%E3%80%8F%20%23%20%20%20%20%20%20-.osk?dl=1)
-![]()
+![](https://osu.ppy.sh/ss/14718940/d52f)
 
 # [red pixel](https://wonderer.s-ul.eu/LTt3ZzTD)
 ![](https://osu.ppy.sh/ss/14548097/882c)
