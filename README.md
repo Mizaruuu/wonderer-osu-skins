@@ -23,9 +23,6 @@ wonderer#8685
 # [boom 0524 edit](https://osuskins.net/download/QCPBA9y)
 ![](https://i.imgur.com/Yqaz5nv.png)
 
-# [bowdown](https://www.dropbox.com/s/0f0filgw5bj4eoo/talala%20-%20bowdown.osk?dl=1)
-![](https://i.imgur.com/5jo6jSM.png)
-
 # [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
 ![](https://i.imgur.com/wsUuZa7.png)
 
