@@ -56,6 +56,9 @@ wonderer#8685
 # [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
+# [morgan spring](https://wonderer.s-ul.eu/zj4BccJa)
+![](https://osu.ppy.sh/ss/14790378/c226)
+
 # [owotuna selyu](https://www.dropbox.com/s/w04lczbctfb0rn9/-%20%20%20%20%20%20%23%20owoTuna%20%7B1.41%7D%20%E3%80%8ESelyu%2BShige%E3%80%8F%20%23%20%20%20%20%20%20-.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14718940/d52f)
 
