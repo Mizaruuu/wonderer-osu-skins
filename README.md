@@ -14,6 +14,9 @@ wonderer#8685
 # [aireu dt](https://www.dropbox.com/s/edgjos6v00bhmq2/aireu%20dt.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14718918/6273)
 
+# [amaestric 2020](https://www.dropbox.com/s/lal1yz3d80ebkhg/AMAESTRiC2020.osk?dl=1)
+![](https://osu.ppy.sh/ss/14790371/4c27)
+
 # [ameliorate yaong](https://wonderer.s-ul.eu/YVpgFkEM)
 ![](https://i.imgur.com/u2EnxK3.png)
 
