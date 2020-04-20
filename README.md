@@ -33,7 +33,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
 # [idk](https://t.co/JY4FJQ9HdP?amp=1)
-![]()
+![](https://osu.ppy.sh/ss/14790410/bec7)
 
 # [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
 ![](https://i.imgur.com/wsUuZa7.png)
@@ -47,8 +47,8 @@ wonderer#8685
 # [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
 ![](https://i.imgur.com/z3A5H8N.png)
 
-# [monkoyaong](https://wonderer.s-ul.eu/lQuZqc3F)
-![](https://i.imgur.com/4BQgtKW.png)
+# [monkoyaong](https://wonderer.s-ul.eu/lJgGCar5)
+![](https://osu.ppy.sh/ss/14790405/af59)
 
 # [morgna cinnaroll](https://wonderer.s-ul.eu/H3t2u0uf)
 ![](https://i.imgur.com/VPYEigc.png)
@@ -74,7 +74,10 @@ wonderer#8685
 # [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
 
-# [tko? 2](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
+# [tko 2](https://www.dropbox.com/s/xi9trqgexe2vhjp/-%20%2B%20tkova.osk?dl=1)
+![](https://osu.ppy.sh/ss/14790383/2835)
+
+# [tko 3](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
 ![](https://i.imgur.com/ZtCjkft.png)
 
 # [varvalian](https://www.dropbox.com/s/pazl3bgbie26dbe/Aristia%28Edit%29.osk?dl=1)
@@ -88,3 +91,7 @@ wonderer#8685
 
 # [yugen](http://www.mediafire.com/file/gkxr6fswqjozc7f/-+YUGEN+FINAL+WS+-.osk)
 ![](https://i.imgur.com/0y4eHnO.png)
+
+# [arrow stepmania](https://wonderer.s-ul.eu/p6ZYwzxY)
+![](https://osu.ppy.sh/ss/14790417/15bb)
+
