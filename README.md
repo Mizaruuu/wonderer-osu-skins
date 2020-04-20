@@ -29,6 +29,9 @@ wonderer#8685
 # [flor](https://wonderer.s-ul.eu/yX4VrCV5)
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
+# [idk](https://t.co/JY4FJQ9HdP?amp=1)
+![]()
+
 # [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
 ![](https://i.imgur.com/wsUuZa7.png)
 
