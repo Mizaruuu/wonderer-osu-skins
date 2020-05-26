@@ -11,6 +11,12 @@ wonderer#8685
 # [boom 0524 edit](https://osuskins.net/download/QCPBA9y)
 ![](https://i.imgur.com/Yqaz5nv.png)
 
+# [bubbleman](https://www.dropbox.com/s/i42jc6mu0jvl9b0/BubbleSkin20-03-20.osk?dl=1)
+![](https://osu.ppy.sh/ss/14973945/6b70)
+
+# [elohere](http://puu.sh/pDnzg/2d2dacfc85.osk)
+![](https://osu.ppy.sh/ss/13839226/eaad)
+
 # [flor](https://wonderer.s-ul.eu/yX4VrCV5)
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
@@ -20,8 +26,8 @@ wonderer#8685
 # [jace](https://wonderer.s-ul.eu/wJ7LWU9r)
 ![](https://osu.ppy.sh/ss/14718925/7190)
 
-# [jace 6.25]()
-![]()
+# [jace 6.25](https://wonderer.s-ul.eu/Mqduh1TL)
+![](https://i.imgur.com/OnvbOaL.png)
 
 # [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
 ![](https://i.imgur.com/z3A5H8N.png)
@@ -38,8 +44,17 @@ wonderer#8685
 # [owotuna selyu](https://www.dropbox.com/s/w04lczbctfb0rn9/-%20%20%20%20%20%20%23%20owoTuna%20%7B1.41%7D%20%E3%80%8ESelyu%2BShige%E3%80%8F%20%23%20%20%20%20%20%20-.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14718940/d52f)
 
+# [rafis ryuk edit](https://www.dropbox.com/s/mj8snq3xz4rx15y/Rafis%20Generic%20DT%20skin.osk?dl=1)
+![](https://camo.githubusercontent.com/58148881b29cd583229d42ec0636b425bce11140/68747470733a2f2f6f73752e7070792e73682f73732f31343337323438372f37666233)
+
+# [recia](https://wonderer.s-ul.eu/KmEqjiTT)
+![](https://osu.ppy.sh/ss/14973963/ea7d)
+
 # [red pixel](https://wonderer.s-ul.eu/LTt3ZzTD)
 ![](https://osu.ppy.sh/ss/14548097/882c)
+
+# [shirousa](https://wonderer.s-ul.eu/OVOOXrs3)
+![](https://osu.ppy.sh/ss/14973968/5eac)
 
 # [varvalian](https://www.dropbox.com/s/pazl3bgbie26dbe/Aristia%28Edit%29.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14718931/858b)
@@ -50,12 +65,14 @@ wonderer#8685
 # [whitecat seoul](http://puu.sh/wbUqh/f06e03e683.osk)
 ![](https://i.imgur.com/dc18qYP.png)
 
-# [yugen](http://www.mediafire.com/file/gkxr6fswqjozc7f/-+YUGEN+FINAL+WS+-.osk)
-![](https://i.imgur.com/0y4eHnO.png)
+# [yugen edit](https://asdfasdfasdf.s-ul.eu/nbzz9m5s)
+![](https://osu.ppy.sh/ss/14946601/b836)
+
+# [zzz dt](https://wonderer.s-ul.eu/JcOMv6NC)
+![](https://osu.ppy.sh/ss/14973970/ee21)
 
 # [arrow stepmania](https://wonderer.s-ul.eu/p6ZYwzxY)
 ![](https://osu.ppy.sh/ss/14790417/15bb)
-
 
 
 
@@ -103,3 +120,6 @@ wonderer#8685
 
 # [tko 3](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
 ![](https://i.imgur.com/ZtCjkft.png)
+
+# [yugen](http://www.mediafire.com/file/gkxr6fswqjozc7f/-+YUGEN+FINAL+WS+-.osk)
+![](https://i.imgur.com/0y4eHnO.png)
