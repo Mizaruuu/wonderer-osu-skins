@@ -17,20 +17,14 @@ wonderer#8685
 # [idk](https://t.co/JY4FJQ9HdP?amp=1)
 ![](https://osu.ppy.sh/ss/14790410/bec7)
 
-# [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
-![](https://i.imgur.com/wsUuZa7.png)
-
 # [jace](https://wonderer.s-ul.eu/wJ7LWU9r)
 ![](https://osu.ppy.sh/ss/14718925/7190)
 
-# [lua(toke hamster) dt edit](https://wonderer.s-ul.eu/9PndWNLO)
-![](https://osu.ppy.sh/ss/14460595/a25d)
+# [jace 6.25]()
+![]()
 
 # [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
 ![](https://i.imgur.com/z3A5H8N.png)
-
-# [monkoyaong](https://wonderer.s-ul.eu/lJgGCar5)
-![](https://osu.ppy.sh/ss/14790405/af59)
 
 # [morgna cinnaroll](https://wonderer.s-ul.eu/H3t2u0uf)
 ![](https://i.imgur.com/VPYEigc.png)
@@ -46,21 +40,6 @@ wonderer#8685
 
 # [red pixel](https://wonderer.s-ul.eu/LTt3ZzTD)
 ![](https://osu.ppy.sh/ss/14548097/882c)
-
-# [rustbell cent](https://wonderer.s-ul.eu/MXZqwGxJ)
-![](https://i.imgur.com/xWkMvPx.png)
-
-# [semaphore](https://wonderer.s-ul.eu/E2EHkG3x)
-![](https://osu.ppy.sh/ss/14718937/f8f6)
-
-# [tko?](https://wonderer.s-ul.eu/CItfrmpg)
-![](https://i.imgur.com/SAhsFWn.png)
-
-# [tko 2](https://www.dropbox.com/s/xi9trqgexe2vhjp/-%20%2B%20tkova.osk?dl=1)
-![](https://osu.ppy.sh/ss/14790383/2835)
-
-# [tko 3](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
-![](https://i.imgur.com/ZtCjkft.png)
 
 # [varvalian](https://www.dropbox.com/s/pazl3bgbie26dbe/Aristia%28Edit%29.osk?dl=1)
 ![](https://osu.ppy.sh/ss/14718931/858b)
@@ -98,3 +77,29 @@ wonderer#8685
 
 # [boom 0524 but](https://wonderer.s-ul.eu/Z9IZzcoT)
 ![](https://osu.ppy.sh/ss/14548089/b937)
+
+# [idk](https://t.co/JY4FJQ9HdP?amp=1)
+![](https://osu.ppy.sh/ss/14790410/bec7)
+
+# [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
+![](https://i.imgur.com/wsUuZa7.png)
+
+# [lua(toke hamster) dt edit](https://wonderer.s-ul.eu/9PndWNLO)
+![](https://osu.ppy.sh/ss/14460595/a25d)
+
+# [monkoyaong](https://wonderer.s-ul.eu/lJgGCar5)
+![](https://osu.ppy.sh/ss/14790405/af59)
+
+# [rustbell cent](https://wonderer.s-ul.eu/MXZqwGxJ)
+![](https://i.imgur.com/xWkMvPx.png)
+# [semaphore](https://wonderer.s-ul.eu/E2EHkG3x)
+![](https://osu.ppy.sh/ss/14718937/f8f6)
+
+# [tko?](https://wonderer.s-ul.eu/CItfrmpg)
+![](https://i.imgur.com/SAhsFWn.png)
+
+# [tko 2](https://www.dropbox.com/s/xi9trqgexe2vhjp/-%20%2B%20tkova.osk?dl=1)
+![](https://osu.ppy.sh/ss/14790383/2835)
+
+# [tko 3](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
+![](https://i.imgur.com/ZtCjkft.png)
