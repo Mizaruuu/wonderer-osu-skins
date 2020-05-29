@@ -20,9 +20,6 @@ wonderer#8685
 # [flor](https://wonderer.s-ul.eu/yX4VrCV5)
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
-# [idk](https://t.co/JY4FJQ9HdP?amp=1)
-![](https://osu.ppy.sh/ss/14790410/bec7)
-
 # [jace](https://wonderer.s-ul.eu/wJ7LWU9r)
 ![](https://osu.ppy.sh/ss/14718925/7190)
 
