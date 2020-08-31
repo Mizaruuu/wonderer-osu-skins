@@ -3,7 +3,7 @@ my osu skins that i use
 
 if you are searching for other skins please dm me on osu/discord
 wonderer#8685
-
+08/31/20 edit: fuck it im just gonna list all skins without sorting
 
 # [amaestric](https://www.dropbox.com/s/r86ku7tsf60r62p/-%20Amaestric.osk?dl=1)
 ![](https://i.imgur.com/NDmlNSF.png)
