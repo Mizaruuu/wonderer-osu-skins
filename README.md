@@ -15,12 +15,6 @@ wonderer#8685
 # [amaestric](https://www.dropbox.com/s/r86ku7tsf60r62p/-%20Amaestric.osk?dl=1)
 ![](https://i.imgur.com/NDmlNSF.png)
 
-# [amaestric 2020](https://www.dropbox.com/s/lal1yz3d80ebkhg/AMAESTRiC2020.osk?dl=1)
-![](https://osu.ppy.sh/ss/14790371/4c27)
-
-# [ameliorate](https://www.dropbox.com/s/5sikatln8y6mi1y/ameliorate%20yaong.osk?dl=1)
-![](https://i.imgur.com/VCpUTeq.png)
-
 # [azer+](https://wonderer.s-ul.eu/H2dSCEVF.osk)
 ![](https://osu.ppy.sh/ss/15478251/a43c)
 
