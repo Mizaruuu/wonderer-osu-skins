@@ -12,6 +12,9 @@ wonderer#8685
 # [aireu](https://wonderer.s-ul.eu/l6n4EPg5.osk)
 ![](https://i.imgur.com/hdWow3n.png)
 
+# [azr8](https://www.dropbox.com/s/zlfkk79bxe793rh/azr8.osk?dl=1) or [dt edit](https://www.dropbox.com/s/88o8clu8tf2qzqd/azr8%20dt%20edit.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534643/bfbf)
+
 # [azer+](https://wonderer.s-ul.eu/H2dSCEVF.osk)
 ![](https://osu.ppy.sh/ss/15478251/a43c)
 
