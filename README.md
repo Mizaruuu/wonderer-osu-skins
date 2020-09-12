@@ -6,6 +6,9 @@ wonderer#8685
 
 08/31/20 edit: fuck it im just gonna list all skins without sorting
 
+# [404anf ez](https://www.dropbox.com/s/6mbhnr6776fjg95/404anf%20ez.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534652/2e05)
+
 # [aesthetic b](https://wonderer.s-ul.eu/MJTTmyPG)
 ![](https://osu.ppy.sh/ss/14548095/decd)
 
@@ -42,6 +45,12 @@ wonderer#8685
 # [flor new](https://wonderer.s-ul.eu/lPU4BsUP.osk)
 ![](https://osu.ppy.sh/ss/15478257/95eb)
 
+# [gayz](https://www.dropbox.com/s/qe6bgej5mpzw76f/gayz.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534664/fd77)
+
+# [howl](https://www.dropbox.com/s/09aowlqv9nnwd2e/howl.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534682/087e)
+
 # [idk](https://t.co/JY4FJQ9HdP?amp=1)
 ![](https://osu.ppy.sh/ss/14790410/bec7)
 
@@ -56,6 +65,9 @@ wonderer#8685
 
 # [kablaze 2](https://www.dropbox.com/s/maxnctvo4zopmaq/kablaze%202.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15189393/901e)
+
+# [kyle](https://www.dropbox.com/s/aftxnw8uwnjom8l/kyle.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534696/9808)
 
 # [lain](https://www.dropbox.com/s/b2zijqgagcd6fd2/lain%27s%20skin.osk?dl=1)
 ![](https://i.imgur.com/juu1r3G.png)
@@ -87,6 +99,9 @@ wonderer#8685
 # [red pixel](https://wonderer.s-ul.eu/LTt3ZzTD)
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
+# [rho bunny galaxy v2](https://www.dropbox.com/s/ldebzic3tko1zw6/rho%20bunny%20galaxy%202.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534710/2238)
+
 # [rustbell cent](https://wonderer.s-ul.eu/MXZqwGxJ)
 ![](https://i.imgur.com/xWkMvPx.png)
 
@@ -96,11 +111,20 @@ wonderer#8685
 # [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
 
+# [toke](https://www.dropbox.com/s/gprp4iwgw2zbprj/toke.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534729/754f)
+
 # [varvalian 1](https://www.dropbox.com/s/7lcjpt7ay51woof/varvalian%20aireu.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15478265/d0e5)
 
 # [varvalian 2](https://www.dropbox.com/s/xhxf3ksczo4gysn/varvalian%20tony.osk?dl=1)
 ![](https://i.imgur.com/vzLGOZl.png)
+
+# [vaxei](https://www.dropbox.com/s/nazagbsfo8zeto9/vaxei.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534724/2c1f)
+
+# [vaxei#](https://www.dropbox.com/s/gvkrl96kq62zzkp/vaxei%23.osk?dl=1)
+![](https://osu.ppy.sh/ss/15534731/daf9)
 
 # [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
 ![](https://i.imgur.com/IxyB255.png)
