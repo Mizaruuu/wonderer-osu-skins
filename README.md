@@ -12,23 +12,14 @@ wonderer#8685
 # [aireu](https://wonderer.s-ul.eu/l6n4EPg5.osk)
 ![](https://i.imgur.com/hdWow3n.png)
 
-# [amaestric](https://www.dropbox.com/s/r86ku7tsf60r62p/-%20Amaestric.osk?dl=1)
-![](https://i.imgur.com/NDmlNSF.png)
-
 # [azer+](https://wonderer.s-ul.eu/H2dSCEVF.osk)
 ![](https://osu.ppy.sh/ss/15478251/a43c)
-
-# [azer8dawn](https://www.dropbox.com/s/ydin4ern2eb4ev2/%23azer8dawn.osk?dl=1)
-![](https://i.imgur.com/xypDEDZ.png)
 
 # [azr8dfgdfgdf](https://wonderer.s-ul.eu/ktn06BdV.osk)
 ![](https://osu.ppy.sh/ss/15478253/bef5)
 
 # [azr8ima](https://www.dropbox.com/s/x1foq1uai6dgn8l/%23azr8ima.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15189379/2442)
-
-# [azerino](https://www.dropbox.com/s/289wqebkcpxz68g/Azerino%2023.01.2015.osk?dl=1)
-![](https://camo.githubusercontent.com/f54525ca574237f0c4cee8c1f1605d5328c2fb10/68747470733a2f2f6f73752e7070792e73682f73732f31343132333637352f63613532)
 
 # [boom 0524 but](https://wonderer.s-ul.eu/Z9IZzcoT)
 ![](https://osu.ppy.sh/ss/14548089/b937)
@@ -42,12 +33,6 @@ wonderer#8685
 # [Côôkîêzî](https://www.dropbox.com/s/oq1otv3hxle946e/C%C3%B4%C3%B4k%C3%AE%C3%AAz%C3%AE.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15189385/825b)
 
-# [elohere](http://puu.sh/pDnzg/2d2dacfc85.osk)
-![](https://osu.ppy.sh/ss/13839226/eaad)
-
-# [filsdelama](https://www.dropbox.com/s/vgd28j5jbqy4lgk/filsdelama.osk?dl=1)
-![](https://osu.ppy.sh/ss/15478255/8f55)
-
 # [flor](https://wonderer.s-ul.eu/yX4VrCV5)
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
@@ -56,9 +41,6 @@ wonderer#8685
 
 # [idk](https://t.co/JY4FJQ9HdP?amp=1)
 ![](https://osu.ppy.sh/ss/14790410/bec7)
-
-# [idke no sliderend no trail](https://www.dropbox.com/s/6bwhpqqjcgul33c/idke%20colour%2Bopaque.osk?dl=1)
-![](https://i.imgur.com/wsUuZa7.png)
 
 # [jace](https://wonderer.s-ul.eu/wJ7LWU9r)
 ![](https://osu.ppy.sh/ss/14718925/7190)
@@ -105,23 +87,11 @@ wonderer#8685
 # [rustbell cent](https://wonderer.s-ul.eu/MXZqwGxJ)
 ![](https://i.imgur.com/xWkMvPx.png)
 
-# [semaphore](https://wonderer.s-ul.eu/E2EHkG3x)
-![](https://osu.ppy.sh/ss/14718937/f8f6)
-
-# [shirousa](https://wonderer.s-ul.eu/OVOOXrs3)
-![](https://osu.ppy.sh/ss/14973968/5eac)
-
 # [sunflower](https://www.dropbox.com/s/j9yibiz4tt7gkaf/sunflower.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15189402/8f96)
 
 # [tko?](https://wonderer.s-ul.eu/CItfrmpg)
 ![](https://i.imgur.com/SAhsFWn.png)
-
-# [tko 2](https://www.dropbox.com/s/xi9trqgexe2vhjp/-%20%2B%20tkova.osk?dl=1)
-![](https://osu.ppy.sh/ss/14790383/2835)
-
-# [tko 3](https://www.dropbox.com/s/6dfljlmhty86o7r/tko.osk?dl=1)
-![](https://i.imgur.com/ZtCjkft.png)
 
 # [varvalian 1](https://www.dropbox.com/s/7lcjpt7ay51woof/varvalian%20aireu.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15478265/d0e5)
