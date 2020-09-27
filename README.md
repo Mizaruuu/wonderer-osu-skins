@@ -6,122 +6,122 @@ wonderer#8685
 
 08/31/20 edit: fuck it im just gonna list all skins without sorting
 
-# [404anf ez](https://www.dropbox.com/s/6mbhnr6776fjg95/404anf%20ez.osk?dl=1)
+# [404anf ez](https://b.catgirlsare.sexy/RZdBJaAb.osk)
 ![](https://osu.ppy.sh/ss/15534652/2e05)
 
-# [aesthetic b](https://wonderer.s-ul.eu/MJTTmyPG)
+# [aesthetic b](https://wonderer.u.catgirlsare.sexy/92Jx1dqF.osk)
 ![](https://osu.ppy.sh/ss/14548095/decd)
 
-# [aireu](https://wonderer.s-ul.eu/l6n4EPg5.osk)
+# [aireu](https://b.catgirlsare.sexy/Lp80NCiJ.osk)
 ![](https://i.imgur.com/hdWow3n.png)
 
-# [azr8](https://www.dropbox.com/s/zlfkk79bxe793rh/azr8.osk?dl=1) or [dt edit](https://www.dropbox.com/s/88o8clu8tf2qzqd/azr8%20dt%20edit.osk?dl=1)
+# [azr8](https://wonderer.u.catgirlsare.sexy/eNwNnlxW.osk) or [dt edit](	https://wonderer.u.catgirlsare.sexy/xucqJ3lf.osk)
 ![](https://osu.ppy.sh/ss/15534643/bfbf)
 
-# [azer+](https://wonderer.s-ul.eu/H2dSCEVF.osk)
+# [azer+](https://wonderer.u.catgirlsare.sexy/QlJrxOyr.osk)
 ![](https://osu.ppy.sh/ss/15478251/a43c)
 
-# [azr8dfgdfgdf](https://wonderer.s-ul.eu/ktn06BdV.osk)
+# [azr8dfgdfgdf](https://wonderer.u.catgirlsare.sexy/LND3Yzla.osk)
 ![](https://osu.ppy.sh/ss/15478253/bef5)
 
-# [azr8ima](https://www.dropbox.com/s/x1foq1uai6dgn8l/%23azr8ima.osk?dl=1)
+# [azr8ima](https://wonderer.u.catgirlsare.sexy/H2E0mi9N.osk)
 ![](https://osu.ppy.sh/ss/15189379/2442)
 
-# [boom 0524 but](https://wonderer.s-ul.eu/Z9IZzcoT)
+# [boom mek](https://wonderer.u.catgirlsare.sexy/wHIxSEje.osk)
 ![](https://osu.ppy.sh/ss/14548089/b937)
 
-# [boom 0524 edit](https://osuskins.net/download/QCPBA9y)
+# [boom 0524 edit](	https://wonderer.u.catgirlsare.sexy/UtOPa7HH.osk)
 ![](https://i.imgur.com/Yqaz5nv.png)
 
-# [bubbleman](https://www.dropbox.com/s/i42jc6mu0jvl9b0/BubbleSkin20-03-20.osk?dl=1)
+# [bubbleman](https://wonderer.u.catgirlsare.sexy/jrDQe7X7.osk)
 ![](https://osu.ppy.sh/ss/14973945/6b70)
 
-# [Côôkîêzî](https://www.dropbox.com/s/oq1otv3hxle946e/C%C3%B4%C3%B4k%C3%AE%C3%AAz%C3%AE.osk?dl=1)
+# [Côôkîêzî](https://wonderer.u.catgirlsare.sexy/xsbHNtFW.osk)
 ![](https://osu.ppy.sh/ss/15189385/825b)
 
-# [flor](https://wonderer.s-ul.eu/yX4VrCV5)
+# [flor](https://wonderer.u.catgirlsare.sexy/X3QFMOfa.osk)
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
-# [flor new](https://wonderer.s-ul.eu/lPU4BsUP.osk)
+# [flor new](	https://wonderer.u.catgirlsare.sexy/QoeinhZo.osk)
 ![](https://osu.ppy.sh/ss/15478257/95eb)
 
-# [gayz](https://www.dropbox.com/s/qe6bgej5mpzw76f/gayz.osk?dl=1)
+# [gayz](	https://wonderer.u.catgirlsare.sexy/VYRJdR7C.osk)
 ![](https://osu.ppy.sh/ss/15534664/fd77)
 
-# [howl](https://www.dropbox.com/s/09aowlqv9nnwd2e/howl.osk?dl=1)
+# [howl](	https://wonderer.u.catgirlsare.sexy/5JIESI5V.osk)
 ![](https://osu.ppy.sh/ss/15534682/087e)
 
-# [idk](https://t.co/JY4FJQ9HdP?amp=1)
+# [idk](https://wonderer.u.catgirlsare.sexy/UEWnWpHb.osk)
 ![](https://osu.ppy.sh/ss/14790410/bec7)
 
-# [jace](https://wonderer.s-ul.eu/wJ7LWU9r)
+# [jace](https://wonderer.u.catgirlsare.sexy/vLU69_W-.osk)
 ![](https://osu.ppy.sh/ss/14718925/7190)
 
-# [jace 6.25](https://wonderer.s-ul.eu/Mqduh1TL)
+# [jace 6.25](	https://wonderer.u.catgirlsare.sexy/JRiEo6CH.osk)
 ![](https://i.imgur.com/OnvbOaL.png)
 
-# [kablaze 1](https://www.dropbox.com/s/zc1qplkmmm2juup/kablaze%201.osk?dl=1)
+# [kablaze 1](https://wonderer.u.catgirlsare.sexy/yu_3Ye3Q.osk)
 ![](https://osu.ppy.sh/ss/15189388/da03)
 
-# [kablaze 2](https://www.dropbox.com/s/maxnctvo4zopmaq/kablaze%202.osk?dl=1)
+# [kablaze 2](https://wonderer.u.catgirlsare.sexy/CSBdMCSK.osk)
 ![](https://osu.ppy.sh/ss/15189393/901e)
 
-# [kyle](https://www.dropbox.com/s/aftxnw8uwnjom8l/kyle.osk?dl=1)
+# [kyle](https://wonderer.u.catgirlsare.sexy/avU4pWnc.osk)
 ![](https://osu.ppy.sh/ss/15534696/9808)
 
-# [lain](https://www.dropbox.com/s/b2zijqgagcd6fd2/lain%27s%20skin.osk?dl=1)
+# [lain](https://wonderer.u.catgirlsare.sexy/xig-nRiZ.osk)
 ![](https://i.imgur.com/juu1r3G.png)
 
-# [lua(toke hamster) dt edit](https://wonderer.s-ul.eu/9PndWNLO)
+# [lua(toke hamster) dt edit](https://wonderer.u.catgirlsare.sexy/9gR7I_EA.osk)
 ![](https://osu.ppy.sh/ss/14460595/a25d)
 
-# [luca](https://wonderer.s-ul.eu/ZEHFoqYm) or [grey ver](https://wonderer.s-ul.eu/n7dMZO71)
+# [luca](https://wonderer.u.catgirlsare.sexy/p9LAhkyy.osk) or [grey ver](https://wonderer.u.catgirlsare.sexy/CgEkMt3x.osk)
 ![](https://i.imgur.com/z3A5H8N.png)
 
-# [mathi zan edit](https://www.dropbox.com/s/mdm7xl59ep1q80g/mathi%20zan.osk?dl=1)
+# [mathi zan edit](	https://wonderer.u.catgirlsare.sexy/iJXKz9qM.osk)
 ![](https://i.imgur.com/MQ8UIna.png)
 
-# [morgna cinnaroll](https://wonderer.s-ul.eu/H3t2u0uf)
+# [morgna cinnaroll](https://wonderer.u.catgirlsare.sexy/lT7d43DQ.osk)
 ![](https://i.imgur.com/VPYEigc.png)
 
-# [morgan gray](https://www.dropbox.com/s/3r0putdre8rbcwf/morgan%20gray.osk?dl=1)
+# [morgan gray](https://wonderer.u.catgirlsare.sexy/xynS1mzk.osk)
 ![](https://camo.githubusercontent.com/781ab7a8b07c8fcb8f5354d83cfdd289d5420417/68747470733a2f2f6f73752e7070792e73682f73732f31343039363636302f65383231)
 
-# [morgan (flor) private skin omg](https://wonderer.s-ul.eu/yJ5l6HvX)
+# [morgan (flor) private skin omg](https://wonderer.u.catgirlsare.sexy/51QemVHF.osk)
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
-# [rafis](https://wonderer.s-ul.eu/tAXiDQ9a.osk)
+# [rafis](https://wonderer.u.catgirlsare.sexy/8UcDUpno.osk)
 ![](https://osu.ppy.sh/ss/15478261/4d49)
 
-# [recia](https://wonderer.s-ul.eu/KmEqjiTT)
+# [recia](https://wonderer.u.catgirlsare.sexy/Vz5P3MdJ.osk)
 ![](https://osu.ppy.sh/ss/14973963/ea7d)
 
-# [red pixel](https://wonderer.s-ul.eu/LTt3ZzTD)
+# [red pixel](https://wonderer.u.catgirlsare.sexy/zcqqlX-P.osk)
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
-# [rho bunny galaxy v2](https://www.dropbox.com/s/ldebzic3tko1zw6/rho%20bunny%20galaxy%202.osk?dl=1)
+# [rho bunny galaxy v2](https://wonderer.u.catgirlsare.sexy/GXbYja-i.osk)
 ![](https://osu.ppy.sh/ss/15534710/2238)
 
-# [rustbell cent](https://wonderer.s-ul.eu/MXZqwGxJ)
+# [rustbell cent](https://wonderer.u.catgirlsare.sexy/yMkLCYXB.osk)
 ![](https://i.imgur.com/xWkMvPx.png)
 
-# [sunflower](https://www.dropbox.com/s/j9yibiz4tt7gkaf/sunflower.osk?dl=1)
+# [sunflower](https://wonderer.u.catgirlsare.sexy/WFMh7ppG.osk)
 ![](https://osu.ppy.sh/ss/15189402/8f96)
 
-# [tko?](https://wonderer.s-ul.eu/CItfrmpg)
+# [tko?](https://wonderer.u.catgirlsare.sexy/wLXgzLhu.osk)
 ![](https://i.imgur.com/SAhsFWn.png)
 
-# [toke](https://www.dropbox.com/s/gprp4iwgw2zbprj/toke.osk?dl=1)
+# [toke](https://wonderer.u.catgirlsare.sexy/h1TMDRrP.osk)
 ![](https://osu.ppy.sh/ss/15534729/754f)
 
-# [varvalian 1](https://www.dropbox.com/s/7lcjpt7ay51woof/varvalian%20aireu.osk?dl=1)
+# [varvalian 1](https://wonderer.u.catgirlsare.sexy/p2GDJwg5.osk)
 ![](https://osu.ppy.sh/ss/15478265/d0e5)
 
-# [varvalian 2](https://www.dropbox.com/s/xhxf3ksczo4gysn/varvalian%20tony.osk?dl=1)
+# [varvalian 2](https://wonderer.u.catgirlsare.sexy/mcJupnwk.osk)
 ![](https://i.imgur.com/vzLGOZl.png)
 
-# [vaxei](https://www.dropbox.com/s/nazagbsfo8zeto9/vaxei.osk?dl=1)
-![](https://osu.ppy.sh/ss/15534724/2c1f)
+# [vaxei](https://wonderer.u.catgirlsare.sexy/i-Zv5GMo.osk)
+![](https://osu.ppy.sh/ss/15605134/a330)
 
 # [vaxei#](https://www.dropbox.com/s/gvkrl96kq62zzkp/vaxei%23.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15534731/daf9)
@@ -129,28 +129,28 @@ wonderer#8685
 # [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
 ![](https://i.imgur.com/IxyB255.png)
 
-# [whitecat seoul](http://puu.sh/wbUqh/f06e03e683.osk)
+# [whitecat seoul](https://wonderer.u.catgirlsare.sexy/IVvh662f.osk)
 ![](https://i.imgur.com/dc18qYP.png)
 
-# [woey](https://www.dropbox.com/s/t4nt2os5sqkuqlo/woey.osk?dl=1)
+# [woey](https://b.catgirlsare.sexy/yO6El-bR.osk)
 ![](https://osu.ppy.sh/ss/15478268/0a72)
 
-# [xii](https://wonderer.s-ul.eu/320YkLBR.osk)
+# [xii](https://b.catgirlsare.sexy/bwGAEMjC.osk)
 ![](https://i.imgur.com/rm7kkpe.png)
 
-# [zylice](https://www.dropbox.com/s/1kemyf95wpcfd99/zylice.osk?dl=1)
+# [zylice](https://b.catgirlsare.sexy/zujLzJwC.osk)
 ![](https://osu.ppy.sh/ss/15189415/4690)
 
-# [zzz dt](https://wonderer.s-ul.eu/JcOMv6NC)
+# [zzz dt](https://b.catgirlsare.sexy/ozzwe8Zy.osk)
 ![](https://osu.ppy.sh/ss/14973970/ee21)
 
-# [mania 4k](https://www.dropbox.com/s/fsbit7y75d8ezb5/mania%204k.osk?dl=1)
+# [mania 4k](https://b.catgirlsare.sexy/v8hKS-TR.osk)
 ![](https://osu.ppy.sh/ss/15478273/97b1)
 
-# [mania 7k bms](https://www.dropbox.com/s/yij8pyld910ab2g/mania%207k%20bms.osk?dl=1)
+# [mania 7k bms](https://b.catgirlsare.sexy/ZIcFR5W7.osk)
 ![](https://osu.ppy.sh/ss/15478276/4de5)
 
-# [mania 7k retsukiya](https://www.dropbox.com/s/sgul7a6icxyv3dh/mania%207k%20retsukiya.osk?dl=1)
+# [mania 7k retsukiya](https://b.catgirlsare.sexy/KK2YwC3Y.osk)
 ![](https://i.imgur.com/flyMVnb.png)
 
 
