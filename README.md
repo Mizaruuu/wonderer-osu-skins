@@ -164,10 +164,10 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14973970/ee21)
 
 # [mania 7k (4+6)](	https://b.catgirlsare.sexy/DZRfehpZ.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858805/00b0)
 
 # [mania 4k](	https://b.catgirlsare.sexy/8CslWHxh.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858813/4306)
 
 
 
