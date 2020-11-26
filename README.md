@@ -11,7 +11,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14548095/decd)
 
 # [aiden](https://b.catgirlsare.sexy/BhgiCqI5.osk)
-![]
+![](https://osu.ppy.sh/ss/15858760/5c39)
 
 # [aireu](https://b.catgirlsare.sexy/Lp80NCiJ.osk)
 ![](https://i.imgur.com/hdWow3n.png)
@@ -20,7 +20,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/15534643/bfbf)
 
 # [azer8c](https://b.catgirlsare.sexy/VJhgFK_B.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858764/437chttps://osu.ppy.sh/ss/15858770/da1b)
 
 # [azer+](https://b.catgirlsare.sexy/QlJrxOyr.osk)
 ![](https://osu.ppy.sh/ss/15478251/a43c)
@@ -38,19 +38,19 @@ wonderer#8685
 ![](https://i.imgur.com/Yqaz5nv.png)
 
 # [bubbleman](https://b.catgirlsare.sexy/vJefdyyB.osk)
-![]()
+![](https://i.imgur.com/i5OsKOr.png)
 
 # [Côôkîêzî](https://b.catgirlsare.sexy/xsbHNtFW.osk)
 ![](https://osu.ppy.sh/ss/15189385/825b)
 
 # [crystal](https://b.catgirlsare.sexy/kGL0ZY_E.osk)
-![]()
+![](https://i.imgur.com/RUqnCs8.png)
 
 # [delis edit](https://b.catgirlsare.sexy/vM21VYXO.osk)
-![]()
+![](https://i.imgur.com/KZD2OuE.png)
 
 # [enumi 1.1](https://b.catgirlsare.sexy/PjLtdavo.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858770/da1b)
 
 # [flor](https://b.catgirlsare.sexy/X3QFMOfa.osk)
 ![](https://osu.ppy.sh/ss/14718920/1403)
@@ -62,7 +62,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/15534664/fd77)
 
 # [gothic lolita fever dt edit](https://b.catgirlsare.sexy/thfuIeFV.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858776/cbe1)
 
 # [howl](https://b.catgirlsare.sexy/5JIESI5V.osk)
 ![](https://osu.ppy.sh/ss/15534682/087e)
@@ -80,7 +80,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/15189393/901e)
 
 # [komachibaka](https://b.catgirlsare.sexy/4xmHkjSs.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858783/a12e)
 
 # [kyle](https://b.catgirlsare.sexy/avU4pWnc.osk)
 ![](https://osu.ppy.sh/ss/15534696/9808)
@@ -95,16 +95,16 @@ wonderer#8685
 ![](https://i.imgur.com/z3A5H8N.png)
 
 # [luca sleepteiner](https://b.catgirlsare.sexy/AU8agmcX.osk)
-![]()
+![](https://i.imgur.com/T6jGrQr.png)
 
 # [mathi zan edit](https://b.catgirlsare.sexy/iJXKz9qM.osk)
 ![](https://i.imgur.com/MQ8UIna.png)
 
 # [mlaw](https://b.catgirlsare.sexy/r2qvOUHi.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858785/351a)
 
 # [monkov2](https://b.catgirlsare.sexy/hQsMS5Xi.osk)
-![]()
+![](https://i.imgur.com/7oRcUYW.png)
 
 # [morgna cinnaroll](https://b.catgirlsare.sexy/lT7d43DQ.osk)
 ![](https://i.imgur.com/VPYEigc.png)
@@ -122,7 +122,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
 # [rho aesthetic](https://b.catgirlsare.sexy/-7ri5M8k.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858796/7108)
 
 # [rho bunny galaxy v2](https://b.catgirlsare.sexy/GXbYja-i.osk)
 ![](https://osu.ppy.sh/ss/15534710/2238)
@@ -137,7 +137,7 @@ wonderer#8685
 ![](https://i.imgur.com/vzLGOZl.png)
 
 # [vaxei tokori edit](https://b.catgirlsare.sexy/RTjq4UgN.osk)
-![]()
+![](https://osu.ppy.sh/ss/15858798/cd83)
 
 # [vaxei#](https://www.dropbox.com/s/gvkrl96kq62zzkp/vaxei%23.osk?dl=1)
 ![](https://osu.ppy.sh/ss/15534731/daf9)
@@ -155,7 +155,7 @@ wonderer#8685
 ![](https://i.imgur.com/rm7kkpe.png)
 
 # [yasen](https://b.catgirlsare.sexy/tEoMOhuk.osk)
-![]()
+![](https://i.imgur.com/4zPzC3O.png)
 
 # [zylice](https://b.catgirlsare.sexy/zujLzJwC.osk)
 ![](https://osu.ppy.sh/ss/15189415/4690)
