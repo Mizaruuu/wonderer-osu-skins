@@ -121,6 +121,9 @@ wonderer#8685
 # [red pixel](https://b.catgirlsare.sexy/zcqqlX-P.osk)
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
+# [rizer](https://b.catgirlsare.sexy/rCyGmOVJ.osk)
+![](https://osu.ppy.sh/ss/15964403/a1a3)
+
 # [rho aesthetic](https://b.catgirlsare.sexy/-7ri5M8k.osk)
 ![](https://osu.ppy.sh/ss/15858796/7108)
 
