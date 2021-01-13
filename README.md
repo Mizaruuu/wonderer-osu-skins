@@ -7,7 +7,7 @@ wonderer#8685
 08/31/20 edit: fuck it im just gonna list all skins without sorting
 
 # [404anf](https://b.catgirlsare.sexy/l1V9j5dD.osk)
-![]()
+![](https://osu.ppy.sh/ss/16064436/8c22)
 
 # [aesthetic b](https://b.catgirlsare.sexy/92Jx1dqF.osk)
 ![](https://osu.ppy.sh/ss/14548095/decd)
@@ -16,7 +16,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/15858760/5c39)
 
 # [aireu ryker edit](https://b.catgirlsare.sexy/Mi6NQ30j.osk)
-![]()
+![](https://osu.ppy.sh/ss/16064439/a2a8)
 
 # [azr8](https://b.catgirlsare.sexy/eNwNnlxW.osk) or [dt edit](https://b.catgirlsare.sexy/xucqJ3lf.osk)
 ![](https://osu.ppy.sh/ss/15534643/bfbf)
@@ -37,7 +37,7 @@ wonderer#8685
 ![](https://i.imgur.com/Yqaz5nv.png)
 
 # [boop](https://b.catgirlsare.sexy/6L5Dg_Bp.osk)
-![]()
+![](https://camo.githubusercontent.com/77d749920b9bf4d885dc6d628e6f183283230f0fedfe6c23916e59a3a66b904a/68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365)
 
 # [bubbleman](https://b.catgirlsare.sexy/vJefdyyB.osk)
 ![](https://i.imgur.com/i5OsKOr.png)
@@ -55,7 +55,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/15858770/da1b)
 
 # [fancylad](https://b.catgirlsare.sexy/Zwi3lU_n.osk)
-![]()
+![](https://osu.ppy.sh/ss/16064443/5ca9)
 
 # [flor](https://b.catgirlsare.sexy/X3QFMOfa.osk)
 ![](https://osu.ppy.sh/ss/14718920/1403)
@@ -118,13 +118,13 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14517335/72b8)
 
 # [nara](https://b.catgirlsare.sexy/Cw9e6BcY.osk)
-![]()
+![](https://osu.ppy.sh/ss/16064446/096d)
 
 # [rafis](https://b.catgirlsare.sexy/8UcDUpno.osk)
 ![](https://osu.ppy.sh/ss/15478261/4d49)
 
 # [rafis semaphore] (https://b.catgirlsare.sexy/MhniBW9O.osk)
-![]()
+![](https://osu.ppy.sh/ss/16064450/52cc)
 
 # [recia](https://b.catgirlsare.sexy/8UcDUpno.osk)
 ![](https://osu.ppy.sh/ss/14973963/ea7d)
@@ -133,7 +133,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
 # [rektygon](https://b.catgirlsare.sexy/OzolZUqA.osk)
-![]()
+![](https://i.imgur.com/ODn56ma.png)
 
 # [rizer](https://b.catgirlsare.sexy/rCyGmOVJ.osk)
 ![](https://osu.ppy.sh/ss/15964403/a1a3)
@@ -169,7 +169,7 @@ wonderer#8685
 ![](https://osu.ppy.sh/ss/15478268/0a72)
 
 # [www](https://b.catgirlsare.sexy/InElYmeO.osk)
-![]()
+![](https://osu.ppy.sh/ss/16064459/9ffe)
 
 # [xii](https://b.catgirlsare.sexy/bwGAEMjC.osk)
 ![](https://i.imgur.com/rm7kkpe.png)
