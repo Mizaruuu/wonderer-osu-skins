@@ -13,14 +13,8 @@ wonderer#8685
 # [aiden](https://b.catgirlsare.sexy/BhgiCqI5.osk)
 ![](https://osu.ppy.sh/ss/15858760/5c39)
 
-# [aireu](https://b.catgirlsare.sexy/Lp80NCiJ.osk)
-![](https://i.imgur.com/hdWow3n.png)
-
 # [azr8](https://b.catgirlsare.sexy/eNwNnlxW.osk) or [dt edit](https://b.catgirlsare.sexy/xucqJ3lf.osk)
 ![](https://osu.ppy.sh/ss/15534643/bfbf)
-
-# [azer8c](https://b.catgirlsare.sexy/VJhgFK_B.osk)
-![](https://osu.ppy.sh/ss/15858764/437chttps://osu.ppy.sh/ss/15858770/da1b)
 
 # [azer+](https://b.catgirlsare.sexy/QlJrxOyr.osk)
 ![](https://osu.ppy.sh/ss/15478251/a43c)
