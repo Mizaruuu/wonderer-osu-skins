@@ -39,6 +39,12 @@ wonderer#8685
 # [boop](https://b.catgirlsare.sexy/6L5Dg_Bp.osk)
 ![](https://camo.githubusercontent.com/77d749920b9bf4d885dc6d628e6f183283230f0fedfe6c23916e59a3a66b904a/68747470733a2f2f6f73752e7070792e73682f73732f31343733333935372f36636365)
 
+# [boshyman](https://b.catgirlsare.sexy/XXVYFWhq.osk)
+![](https://osu.ppy.sh/ss/16101020/c4be)
+
+# [bowdown aden edit](https://b.catgirlsare.sexy/RpFWP5bZ.osk)
+![](https://osu.ppy.sh/ss/16101025/99a7)
+
 # [bubbleman](https://b.catgirlsare.sexy/vJefdyyB.osk)
 ![](https://i.imgur.com/i5OsKOr.png)
 
@@ -71,6 +77,9 @@ wonderer#8685
 
 # [howl](https://b.catgirlsare.sexy/5JIESI5V.osk)
 ![](https://osu.ppy.sh/ss/15534682/087e)
+
+# [idke](https://b.catgirlsare.sexy/sR4kXHY-.osk)
+![](https://osu.ppy.sh/ss/16101028/641c)
 
 # [jace](https://b.catgirlsare.sexy/vLU69_W-.osk)
 ![](https://osu.ppy.sh/ss/14718925/7190)
@@ -153,11 +162,11 @@ wonderer#8685
 # [varvalian 2](https://b.catgirlsare.sexy/mcJupnwk.osk)
 ![](https://i.imgur.com/vzLGOZl.png)
 
+# [vaxei ck](https://b.catgirlsare.sexy/89WuwpOb.osk)
+![](https://osu.ppy.sh/ss/16101016/155f)    
+
 # [vaxei tokori edit](https://b.catgirlsare.sexy/RTjq4UgN.osk)
 ![](https://osu.ppy.sh/ss/15858798/cd83)
-
-# [vaxei#](https://www.dropbox.com/s/gvkrl96kq62zzkp/vaxei%23.osk?dl=1)
-![](https://osu.ppy.sh/ss/15534731/daf9)
 
 # [whitecat ck](https://www.dropbox.com/s/47obrwg9f8fgzyd/-%20%20%20%20%20%20%20%20%23%20WhiteCat%20%281.0%29%20%E3%80%8ECK%E3%80%8F%20%23-.osk?raw=1)
 ![](https://i.imgur.com/IxyB255.png)
