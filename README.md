@@ -66,6 +66,9 @@ wonderer#8685
 # [flor](https://b.catgirlsare.sexy/X3QFMOfa.osk)
 ![](https://osu.ppy.sh/ss/14718920/1403)
 
+# [flor jace rho](https://b.catgirlsare.sexy/VRntMwa5.osk)
+![](https://osu.ppy.sh/ss/16149965/671c)
+
 # [flor new](https://b.catgirlsare.sexy/QoeinhZo.osk)
 ![](https://osu.ppy.sh/ss/15478257/95eb)
 
