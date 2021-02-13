@@ -21,6 +21,9 @@ wonderer#8685
 # [aireu ryker edit](https://b.catgirlsare.sexy/Mi6NQ30j.osk)
 ![](https://osu.ppy.sh/ss/16064439/a2a8)
 
+# [aricin](https://b.catgirlsare.sexy/vX0Jj_jv.osk)
+![]()
+
 # [asdf](https://b.catgirlsare.sexy/YZTJ3UHR.osk)
 ![](https://osu.ppy.sh/ss/16178070/9888)
 
