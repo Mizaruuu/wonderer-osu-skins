@@ -87,6 +87,9 @@ wonderer#8685
 # [flor new](https://b.catgirlsare.sexy/QoeinhZo.osk)
 ![](https://osu.ppy.sh/ss/15478257/95eb)
 
+# [funorange](https://b.catgirlsare.sexy/VvxzEOIC.osk)
+![]()
+
 # [gayz](https://b.catgirlsare.sexy/VYRJdR7C.osk)
 ![](https://osu.ppy.sh/ss/15534664/fd77)
 
@@ -183,7 +186,7 @@ wonderer#8685
 # [varvalian](https://b.catgirlsare.sexy/6GXzDQzg.osk)
 ![](https://osu.ppy.sh/ss/16178093/c243)
 
-# [vaxei ck](https://b.catgirlsare.sexy/89WuwpOb.osk)
+# [vaxei ck](https://b.catgirlsare.sexy/lWTfn2kg.osk)
 ![](https://osu.ppy.sh/ss/16101016/155f)    
 
 # [vaxei tokori edit](https://b.catgirlsare.sexy/RTjq4UgN.osk)
