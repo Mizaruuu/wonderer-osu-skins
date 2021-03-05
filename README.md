@@ -165,7 +165,7 @@ wonderer#8685
 # [red pixel](https://b.catgirlsare.sexy/zcqqlX-P.osk)
 ![](https://osu.ppy.sh/ss/14548097/882c)
 
-# [rektygon](https://b.catgirlsare.sexy/OzolZUqA.osk)
+# [rektygon](https://b.catgirlsare.sexy/VzOxtPp5.osk)
 ![](https://i.imgur.com/ODn56ma.png)
 
 # [rizer](https://b.catgirlsare.sexy/rCyGmOVJ.osk)
