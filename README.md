@@ -66,6 +66,9 @@ wonderer#8685
 # [bubbleman](https://b.catgirlsare.sexy/vJefdyyB.osk)
 ![](https://i.imgur.com/i5OsKOr.png)
 
+# [Chef](https://cdn.discordapp.com/attachments/830386739440648282/830386780280193044/very_cool.osk)
+![](https://osu.ppy.sh/ss/16452160/b5ae)
+
 # [Côôkîêzî](https://b.catgirlsare.sexy/xsbHNtFW.osk)
 ![](https://osu.ppy.sh/ss/15189385/825b)
 
