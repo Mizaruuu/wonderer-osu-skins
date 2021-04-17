@@ -231,6 +231,9 @@ wonderer#8685
 # [www](https://b.catgirlsare.sexy/InElYmeO.osk)
 ![](https://osu.ppy.sh/ss/16064459/9ffe)
 
+# [xact slay edit](https://b.catgirlsare.sexy/82WrU857.osk)
+![]()
+
 # [xii](https://b.catgirlsare.sexy/bwGAEMjC.osk)
 ![](https://i.imgur.com/rm7kkpe.png)
 
