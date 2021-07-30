@@ -187,6 +187,9 @@ wonderer#8685
 # [happystick](https://b.catgirlsare.sexy/_lUoCNmVoQH2.osk)
 ![](https://osu.ppy.sh/ss/16889111/aa37)
 
+# [headstack](https://b.catgirlsare.sexy/Ja_kdXdxn4fP.osk)
+![](https://osu.ppy.sh/ss/16889219/998d)
+
 # [heydt](https://b.catgirlsare.sexy/dxUAwB0cVGi4.osk)
 ![](https://i.imgur.com/06SAYW3.png)
 
