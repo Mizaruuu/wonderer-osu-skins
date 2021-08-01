@@ -175,7 +175,7 @@ wonderer#8685
 # [forz](https://b.catgirlsare.sexy/PqYWPs1f.osk)
 ![](https://i.imgur.com/nylQl8W.png)
 
-# [funorange](https://b.catgirlsare.sexy/VvxzEOIC.osk)
+# [funorange](https://b.catgirlsare.sexy/2F6p64YKt3F9.osk)
 ![](https://osu.ppy.sh/ss/16449473/418b)
 
 # [funorange new](https://b.catgirlsare.sexy/2F6p64YKt3F9.osk)
