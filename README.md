@@ -256,6 +256,9 @@ wonderer#8685
 # [luca](https://b.catgirlsare.sexy/p9LAhkyy.osk) or [grey ver](https://b.catgirlsare.sexy/CgEkMt3x.osk)
 ![](https://i.imgur.com/z3A5H8N.png)
 
+# [luca 12312](https://b.catgirlsare.sexy/S9sfaHwB.osk)
+![](https://camo.githubusercontent.com/3800038a660a17033d6d747503f48a60498f923cb61336e0a6ea961c1f84d73d/68747470733a2f2f692e696d6775722e636f6d2f4f514169536f732e706e67)
+
 # [luca sleepteiner](https://b.catgirlsare.sexy/AU8agmcX.osk)
 ![](https://i.imgur.com/T6jGrQr.png)
 
