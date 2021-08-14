@@ -127,9 +127,6 @@ wonderer#8685
 # [bubble emiru mix anime thing](https://b.catgirlsare.sexy/ZPRo1RpVEUOq.osk)
 ![](https://i.imgur.com/vbEqVYx.png)
 
-# [Chef](https://cdn.discordapp.com/attachments/830386739440648282/830386780280193044/very_cool.osk)
-![](https://osu.ppy.sh/ss/16452160/b5ae)
-
 # [chiv](https://b.catgirlsare.sexy/8y3zkEukqav_.osk)
 ![](https://osu.ppy.sh/ss/16889101/fd56)
 
